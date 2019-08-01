@@ -55,6 +55,6 @@ It is 2019 and there is no clear global leadership on meaningful carbon emission
 
 <br/>
 **Until it really truly affects their day to day lives, governments will not act with urgency**
-
+<br/>
 ![Capitalism Or The Environment](https://www.chappatte.com/prod/wp-content/uploads/2018/10/I181010c-small-500x280.jpg "Consumer Capitalism")
 
