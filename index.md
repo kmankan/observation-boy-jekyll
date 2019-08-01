@@ -4,7 +4,7 @@
 
 ![Capitalism Or The Environment](https://www.chappatte.com/prod/wp-content/uploads/artworks/2009/12/L091210ce-900x582.jpg "Consumer Capitalism")
 <br/>
-It is 2019 and there is so clear global leadership on meaningful carbon emissions reduction. It's 2019 and global carbon emissions are still rising. It's 2019 and Donald Trump is President of the United States of America. Next year he will have served a full term. On top of this: 
+It is 2019 and there is no clear global leadership on meaningful carbon emissions reduction. It's 2019 and global carbon emissions are still rising. It's 2019 and Donald Trump is President of the United States of America. Next year he will have served a full term. On top of this: 
 
 * There is no grand overarching plan for solving this. 
 
