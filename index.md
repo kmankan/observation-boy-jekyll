@@ -2,7 +2,7 @@
 
 <h2>Here's why we're fucked</h2>
 ![Capitalism Or The Environment](https://www.chappatte.com/prod/wp-content/uploads/artworks/2009/12/L091210ce-900x582.jpg "Consumer Capitalism")
-</br>
+<br/>
 It is 2019 and there is so clear global leadership on meaningful carbon emissions reduction. It's 2019 and global carbon emissions are still rising. It's 2019 and Donald Trump is President of the United States of America. Next year he will have served a full term. On top of this: 
 
 * There is no grand overarching plan for solving this. 
@@ -55,6 +55,5 @@ It is 2019 and there is so clear global leadership on meaningful carbon emission
 <br/>
 **Until it really truly affects their day to day lives, governments will not act with urgency**
 
-52019184
-Malin121429
+![Capitalism Or The Environment](https://www.chappatte.com/prod/wp-content/uploads/2018/10/I181010c-small-500x280.jpg "Consumer Capitalism")
 
