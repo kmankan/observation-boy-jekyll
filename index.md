@@ -1,3 +1,60 @@
-# Welcome to my blog
+**I'm glad you are here. I want to talk to you about the future.**
 
-I'm glad you are here. I plan to talk about ...
+<h2>Here's why we're fucked</h2>
+![Capitalism Or The Environment](https://www.chappatte.com/prod/wp-content/uploads/artworks/2009/12/L091210ce-900x582.jpg "Consumer Capitalism")
+</br>
+It is 2019 and there is so clear global leadership on meaningful carbon emissions reduction. It's 2019 and global carbon emissions are still rising. It's 2019 and Donald Trump is President of the United States of America. Next year he will have served a full term. On top of this: 
+
+* There is no grand overarching plan for solving this. 
+
+* There is no Manhattan Project for a technological solution to the C02 crisis.
+
+* This is no Marshall Plan equivalent to assist developing countries to leapfrog fossil fuels and transition into a clean economy.
+
+* There is no sense of equity or justice for those countries and peoples that will be most hard hit by the coming crisis. Those that did the least to contribute to this crisis will suffer the most.
+
+<br/>
+**The artic sea ice is melting at an unprecendeted rate**
+
+* Artic sea ice loss results in the darker waters below the ice being visible to the sun. Absorbing more heat. The more sea ice that is lost, the warmer the waters and atmosphere in that region will become. The warmer the water and atmosphere, the more sea ice that will melt. And so on.
+* This shit is melting so much faster than most models predicted. Far faster than the IPCC models predicted.
+* We are merely years away from a Blue Ocean Event
+
+<br/>
+**The arctic and northern permafrost is melting at an unprecedented rate**
+
+* Siberian old growth forests are on fire
+* Northern arctic boreal forests are on fire
+* The arctic permafrost contains a stupid amount of methane that if released into the atmosphere will rapidly accelerate warming and trigger many more feedback loops.
+* Substanstial increases to the CO2 equivalent levels will follow.
+
+<br/>
+**The Greenland Ice sheet is melting quickly**
+
+<br/>
+**The West Antarctic Ice sheet is melting quickly**
+
+<br/>
+**Sea level rise is accelerating**
+
+<br/>
+**Tens, perhaps hundreds of millions of people will be displaced from their traditional lands and forced to flee, all within the next fifty years.**
+* Tensions will rise
+* Borders will crumble
+* Governments will collapse. Governments will be overthrown
+* Wars will be waged over resources and stable arable lands
+* New social systems and political economies will rise
+* Human life will further lose intrinsic value
+
+<br/>
+**The forests are being decimated**
+
+* At a time when we need them the most, countries that are the custodians of the lungs of the Earth, Brazil with the Amazon and Indonesia with their vast peatlands are destroying these forests on an industrial scale. <br/>The Amazon is being bulldozed every minute of every day to make way for more agriculture and logging. Very little is understood about how vital rainforests are to the Earth systems, but of what is known it is no exaggeration to say that the large rainforests of the world create literal rivers in the sky, whose evaporations carry water and nutrients across vast distances. <br/>Indonesian peatlands, which are truly **enormous** stores of carbon are being burned to make way for palm oil plantations and logging projects. <br/>Developed countries that have vast forests - Australia, Canada, US - are not taking the necessary steps to preserve and expand these forest systems. Instead at the altar of capitalism and industrial greed they allow these forests to be logged with very little oversight. Just as we are beginning to learn about the importance of diverse old growth trees to a forests health (i.e. the role they play in mycelium networks), we happily log the old growths and destroy the complex integrity of these forests.
+
+
+<br/>
+**Until it really truly affects their day to day lives, governments will not act with urgency**
+
+52019184
+Malin121429
+
